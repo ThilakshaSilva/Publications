@@ -49,13 +49,23 @@ in Polonnaruwa and Monaragala districts of Sri Lanka. Annual Academic Sessions 2
 Open University of Sri Lanka. [Extended Abstract]
 
 • Presented PhD research and subsequent research at a number of conferences:
+
 (2014) 4th Institute for Mathematical Statistics workshop in Sydney.
+
 (2014) 21st International Conference on Computational Statistics in Geneva, Switzerland.
+
 (2015) Young Statisticians Conference in Adelaide.
+
 (2015) Australia New Zealand Applied Probability Workshop in Adelaide.
+
 (2015) International Symposium of Forecasting in California, USA.
+
 (2015) American Statistical Association Joint Statistical Meetings in Seattle, USA.
+
 (2016) A guest speaker for the Young Statisticians Showcase at the University of Melbourne.
+
 (2016) Australian Statistical Conference in Canberra.
+
 (2016) Peter Hall Memorial Conference at the University of Melbourne.
+
 (2017) Young Statisticians Conference in Coolangatta.
