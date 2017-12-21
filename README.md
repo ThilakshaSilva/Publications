@@ -71,3 +71,5 @@ Open University of Sri Lanka. [Extended Abstract]
 (2016) Peter Hall Memorial Conference at the University of Melbourne.
 
 (2017) Young Statisticians Conference in Coolangatta.
+
+Note: My name was legally changed from Henpitahewage Thilaksha Tharanganie to Thilaksha Silva.
