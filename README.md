@@ -64,7 +64,7 @@ Open University of Sri Lanka. [Extended Abstract]
 
 (2016) A guest speaker for the Young Statisticians Showcase at the University of Melbourne.
 
-(2016). Early Career Researcher Conference organised by the Monash Business School.
+(2016) Early Career Researcher Conference organised by the Monash Business School.
 
 (2016) Australian Statistical Conference in Canberra.
 
