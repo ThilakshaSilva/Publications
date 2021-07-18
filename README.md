@@ -72,4 +72,6 @@ Open University of Sri Lanka. [Extended Abstract]
 
 (2017) Young Statisticians Conference in Coolangatta.
 
+(2018) Australian Statistical Conference in Melbourne.
+
 Note: My former name was Henpitahewage Thilaksha Tharanganie.
